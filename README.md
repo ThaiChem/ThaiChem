@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ThaiChem
 - 👀 I’m interested in Chemistry
-- 🌱 I’m currently learning Chemistry
+- 🌱 I’m currently Graduate in Chemistry
 - 💞️ I’m looking to collaborate on Chemistry
 - 📫 How to reach me 
 
